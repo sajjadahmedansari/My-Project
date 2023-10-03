@@ -1,6 +1,6 @@
 # My-Project
 
-Juiced Out Vape: https://technagix.pk/
+H2oPureBlue: https://h2opureblue.com/
 
 Arslan Larik: https://arslanlarik.com/
 
