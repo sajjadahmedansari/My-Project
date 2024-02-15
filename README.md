@@ -1,5 +1,9 @@
 # My-Project
 
+BlueNag Shower Filters: https://bluenag.com/
+
+Great Stock Watches: https://greatstockwatches.com/
+
 H2oPureBlue: https://h2opureblue.com/
 
 Arslan Larik: https://arslanlarik.com/
