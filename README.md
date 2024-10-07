@@ -1,5 +1,14 @@
 # My-Project
 
+Tareen Interiors LLC:
+https://tareeninteriors.com/
+
+Paki Monks Business Website:
+https://pakimonks.com/
+
+Desiro Agency Business Website:
+https://desiro.agency/
+
 Shandaar Cuisine Restaurant:
 https://shandaarcuisine.com/
 
