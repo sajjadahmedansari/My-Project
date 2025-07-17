@@ -16,9 +16,6 @@ https://tareeninteriors.com/
 Nectar Growth Business Website:
 https://nectargrowth.com/
 
-Paki Monks Business Website:
-https://pakimonks.com/
-
 Matrix Construction: https://matrixconstructionpk.com/
 
 Desiro Agency Business Website:
@@ -30,8 +27,6 @@ https://desiroadvertising.com/
 Shandaar Cuisine Restaurant:
 https://shandaarcuisine.com/
 
-Great Stock Watches: https://greatstockwatches.com/
-
 H2oPureBlue: https://h2opureblue.com/
 
 Arslan Larik: https://arslanlarik.com/
@@ -40,11 +35,9 @@ Gym Site: https://gym-site-assignment-07.netlify.app/ (Custom)
 
 TeamSquared: https://teamsquaredadv.com/ 
 
-SocioTraffic: http://muiedd.sg-host.com/ 
+SocioTraffic: https://sociotraffic.com/ 
 
 HyflyTaxis: https://hyflytaxis.co.uk/
-
-VapeCave: https://vapecave.co/
 
 ArsenalJackets: https://arsenaljackets.com/ 
 
@@ -53,8 +46,6 @@ MiaBellaLounge: https://miabellalounge.com/
 TheTradingCorner: http://www.thetradingcornerttc.com/  
 
 PakObserver: https://pakobserver.net/
-
-JA & MO Construction: https://www.jamoconstruction.co.uk/
 
 BohunOne: https://bohunone.co.uk/
 
@@ -74,19 +65,17 @@ Voe: https://voe.ae/
 
 Afnan LandScaping: https://www.afnanlandscaping.com/
 
-DigitalWolf: https://webpro.pk/digitalwolf/
+DigitalWolf: https://digitalwolf.co.in/
 
-SiddiquiHVACR: https://webpro.pk/SiddiquiHVACR/
+SiddiquiHVACR: https://siddiquihvacr.ae/
 
 TaxiRent: https://taxirent.co.uk/
 
-Dua Shopping Mall: https://duashoppingmall.com/
+Dua Shopping Mall: https://duamall.pk/
 
 Tyre Daddy: https://tyre-daddy.co.uk/
 
 Zeb Homes: https://zeb-homes.com/
-
-CoolVan: https://coolvan.ae/
 
 Activ: https://activ.ae/
 
