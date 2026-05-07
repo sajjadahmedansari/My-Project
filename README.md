@@ -1,33 +1,34 @@
 # My-Project
 
+Maedory AI: https://medory.ai/ 
+Medory AI App: https://app.medory.ai/
+
+De Duce Sesthetics: https://deduceaesthetics.com/
+
+Preen Care: https://preencare.com/
+
+ZKR Law: https://testing.zkrlaw.com/
+
+Excelsior on The Park Apartments: https://excelsiorontheparkapartments.com/
+
 Trails At Dominion Park: https://trailsatdominionpark.com/
 
 Drop & Wash: https://dropandwash.com/
 
-MyHomiyo: https://myhomiyo.com/
-
 Crescent Services: https://crescentservices.com.pk/
+
+Ocean Shipping & Logistics: https://oceanshippingandlogistics.com/
 
 Goldship Logistics: https://goldshiplogistics.com/
 
 BlueNag Shower Filters: https://bluenag.com/
 
-Tareen Interiors LLC:
-https://tareeninteriors.com/
+Tareen Interiors LLC: https://tareeninteriors.com/
 
-Nectar Growth Business Website:
-https://nectargrowth.com/
+Nectar Growth Business Website: https://nectargrowth.com/
 
-Matrix Construction: https://matrixconstructionpk.com/
 
-Desiro Agency Business Website:
-https://desiro.agency/
-
-Desiro Advertising Business Website:
-https://desiroadvertising.com/
-
-Shandaar Cuisine Restaurant:
-https://shandaarcuisine.com/
+Shandaar Cuisine Restaurant: https://shandaarcuisine.com/
 
 H2oPureBlue: https://h2opureblue.com/
 
