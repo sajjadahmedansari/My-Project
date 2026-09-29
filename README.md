@@ -1,6 +1,11 @@
 # My-Project
 
-Maedory AI: https://medory.ai/ 
+Dink and Rise Rickleball: https://dinkandrisepickleball.com/
+
+Birdwink AI: https://birdwink.com/ 
+Birdwink AI App: https://app.birdwink.com/
+
+Medory AI: https://medory.ai/ 
 Medory AI App: https://app.medory.ai/
 
 De Duce Sesthetics: https://deduceaesthetics.com/
@@ -8,6 +13,8 @@ De Duce Sesthetics: https://deduceaesthetics.com/
 Preen Care: https://preencare.com/
 
 ZKR Law: https://testing.zkrlaw.com/
+
+Siena on Westheimer: https://sienaonwestheimer.com/
 
 Excelsior on The Park Apartments: https://excelsiorontheparkapartments.com/
 
@@ -26,7 +33,6 @@ BlueNag Shower Filters: https://bluenag.com/
 Tareen Interiors LLC: https://tareeninteriors.com/
 
 Nectar Growth Business Website: https://nectargrowth.com/
-
 
 Shandaar Cuisine Restaurant: https://shandaarcuisine.com/
 
