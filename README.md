@@ -12,7 +12,7 @@ De Duce Sesthetics: https://deduceaesthetics.com/
 
 Preen Care: https://preencare.com/
 
-ZKR Law: https://testing.zkrlaw.com/
+ZKR Law: https://zkrlaw.com/
 
 Siena on Westheimer: https://sienaonwestheimer.com/
 
