@@ -1,26 +1,26 @@
 # My-Project
 
-Dink and Rise Rickleball: https://dinkandrisepickleball.com/
+Dink and Rise Pickleball USA: https://dinkandrisepickleball.com/
 
-Birdwink AI: https://birdwink.com/ 
+Birdwink AI UAE: https://birdwink.com/ 
 Birdwink AI App: https://app.birdwink.com/
 
-Medory AI: https://medory.ai/ 
+Medory AI UAE: https://medory.ai/ 
 Medory AI App: https://app.medory.ai/
 
 De Duce Sesthetics: https://deduceaesthetics.com/
 
 Preen Care: https://preencare.com/
 
-ZKR Law: https://zkrlaw.com/
+ZKR Law USA: https://zkrlaw.com/
 
-Siena on Westheimer: https://sienaonwestheimer.com/
+Siena on Westheimer USA: https://sienaonwestheimer.com/
 
-Excelsior on The Park Apartments: https://excelsiorontheparkapartments.com/
+Excelsior on The Park Apartments USA: https://excelsiorontheparkapartments.com/
 
-Trails At Dominion Park: https://trailsatdominionpark.com/
+Trails At Dominion Park USA: https://trailsatdominionpark.com/
 
-Drop & Wash: https://dropandwash.com/
+Drop & Wash Malaysia: https://dropandwash.com/
 
 Crescent Services: https://crescentservices.com.pk/
 
@@ -28,15 +28,15 @@ Ocean Shipping & Logistics: https://oceanshippingandlogistics.com/
 
 Goldship Logistics: https://goldshiplogistics.com/
 
-BlueNag Shower Filters: https://bluenag.com/
+BlueNag Shower Filters UAE: https://bluenag.com/
 
-Tareen Interiors LLC: https://tareeninteriors.com/
+Tareen Interiors LLC UAE: https://tareeninteriors.com/
 
-Nectar Growth Business Website: https://nectargrowth.com/
+Nectar Growth Business Website UAE: https://nectargrowth.com/
 
-Shandaar Cuisine Restaurant: https://shandaarcuisine.com/
+Shandaar Cuisine Restaurant Canada: https://shandaarcuisine.com/
 
-H2oPureBlue: https://h2opureblue.com/
+H2oPureBlue UAE: https://h2opureblue.com/
 
 Arslan Larik: https://arslanlarik.com/
 
