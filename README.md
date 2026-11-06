@@ -1,7 +1,5 @@
 # My-Project
 
-Dink and Rise Pickleball USA: https://dinkandrisepickleball.com/
-
 Birdwink AI UAE: https://birdwink.com/ 
 Birdwink AI App: https://app.birdwink.com/
 
